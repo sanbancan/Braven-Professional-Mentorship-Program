@@ -12,5 +12,8 @@ Pls find the below points to which I am seeking answers to: -
 Pls let me know when we meet next.
 
 Sincerely,
-Sania Bandekar
-Business card and portfolio-
+Sania 
+
+Our workspace:
+https://trello.com/invite/b/LnNrZh93/ATTId0c12429c9284f94f5ee991f0e982e3fDB16570F/1-on-1-meeting-agenda
+
